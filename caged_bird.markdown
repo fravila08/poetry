@@ -1,24 +1,30 @@
-### Verse 4
+### Verse 1
 
-The free bird thinks of another breeze
-and the trade winds soft through the sighing trees
-and the fat worms waiting on a dawn-bright lawn
-and he names the sky his own.
+The free bird leaps
+on the back of the wind
+and floats downstream
+till the current ends
+and dips his wings
+in the orange sun rays
+and dares to claim the sky.
 
-### Verse 5
+### Verse 2
 
-But a caged bird stands on the grave of dreams
-his shadow shouts on a nightmare scream
-his wings are clipped and his feet are tied
-so he opens his throat to sing
+But a bird that stalks
+down his narrow cage
+can seldom see through
+his bars of rage
+his wings are clipped and
+his feet are tied
+so he opens his throat to sing.
 
-### Verse 6
+### Verse 3
 
 The caged bird sings
-with a fearful trill
-of things unknown
+with fearful trill
+of the things unknown
 but longed for still
 and his tune is heard
-on the distant hill
+on the distant hill 
 for the caged bird
-sings of freedom. 
+sings of freedom
