@@ -25,6 +25,6 @@ with fearful trill
 of the things unknown
 but longed for still
 and his tune is heard
-on the distant hill 
+on the distant hill
 for the caged bird
 sings of freedom
