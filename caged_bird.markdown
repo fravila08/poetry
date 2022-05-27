@@ -1,5 +1,3 @@
-# Caged Bird
-
 ### Verse 1
 
 The free bird leaps
